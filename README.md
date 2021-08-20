@@ -7,4 +7,4 @@
 
 Please confirm that I am me anywhere by the following method：
 
-[https://keybase.io/lparksi](https://keybase.io/lparksi)
+[https://keybase.io/lparksi](https://keybase.io/parksi)
