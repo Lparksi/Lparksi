@@ -8,3 +8,7 @@
 Please confirm that I am me anywhere by the following method：
 
 [https://keybase.io/lparksi](https://keybase.io/parksi)
+
+爱发电
+
+https://afdian.net/a/lparksi
