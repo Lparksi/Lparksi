@@ -9,6 +9,10 @@ Please confirm that I am me anywhere by the following method：
 
 [https://keybase.io/lparksi](https://keybase.io/parksi)
 
+Blog:
+
+[https://www.parksi.top/](https://www.parksi.top/)
+
 爱发电
 
 https://afdian.net/a/lparksi
