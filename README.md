@@ -11,8 +11,4 @@ Please confirm that I am me anywhere by the following method：
 
 Blog:
 
-[https://www.parksi.top/](https://www.parksi.top/)
-
-爱发电
-
-https://afdian.net/a/lparksi
+[https://www.parksi.cn/](https://www.parksi.cn/)
