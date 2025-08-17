@@ -12,3 +12,7 @@ Please confirm that I am me anywhere by the following method：
 Blog:
 
 [https://www.parksi.cn/](https://www.parksi.cn/)
+
+Aifadian:
+
+[https://afdian.com/a/lparksi](https://afdian.com/a/lparksi)
