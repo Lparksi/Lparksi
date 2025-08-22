@@ -11,7 +11,7 @@ Please confirm that I am me anywhere by the following method：
 
 Blog:
 
-[https://www.parksi.cn/](https://www.parksi.cn/)
+[https://blog.lparksi.com/](https://blog.lparksi.com/)
 
 Aifadian:
 
